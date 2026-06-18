@@ -1,4 +1,4 @@
-<img width="258" height="320" alt="image" src="https://github.com/user-attachments/assets/6ede9903-9581-43c2-ac40-57aaa2a23564" />Prazer me chamo Hernandes
+Prazer me chamo Hernandes
 ⚽️ Nos campos no tempo livre.
 🍕 Pizza é de lei.
 🎧 Rap & Trap na mente.
